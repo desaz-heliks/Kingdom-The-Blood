@@ -234,4 +234,4 @@ Kingdom: The Blood is available as a full free version, with all features and up
 Don't miss out on your chance to experience Kingdom: The Blood! Download your copy today and embark on an unforgettable adventure.
 
 ---
-**Last updated:** 2026-10-09 22:31:17 UTC
+**Last updated:** 2026-10-10 02:13:37 UTC
